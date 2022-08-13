@@ -30,3 +30,19 @@ and spread evenly doing your best to ensure an even spread. Leave to set in the 
 the chocolate is solid.
 9. Decorate with some coarse salt flakes.  
 10. Use a hot knife to cut this cake in order to be able to cut through the chocolate without it cracking. 
+
+## INGREDIENTS
+
+* Ingredients:
+* **Base:**
+    *250 g Cashew nuts
+    *150 g Dates
+    *2 tablespoons coconut oil
+* **Caramel**
+    *300 g Dates
+    *150 g smooth Peanut butter or almond butter
+    *120 g Coconut oil
+    *6-10 Tablespoons water
+* **Chocolate topping**
+    *300 g chocolate
+    *4 tbsp Coconut oil
